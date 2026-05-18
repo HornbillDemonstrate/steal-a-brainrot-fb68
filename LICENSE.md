@@ -1,4 +1,4 @@
-#  
+#  Top escape tsunami for brainrots scripts is the best escape tsunami for brainrots scripts with esp and auto-farm. Safe, reliable, and optimized for maximum performance.
 
 
 
